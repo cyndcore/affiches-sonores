@@ -8,7 +8,7 @@ Le groupe est parti en balade sensorielle dans le Jardin des Plantes d'Amiens ju
 
 La musicienne et percussionniste londonienne Renu Hossain, elle aussi neurodivergente, a travaillé à partir des sons enregistrés lors de cette balade pour composer un soundscape ambient qui mêle nature et ville, et ce que l'on peut entendre quand les sens sont portés à leur maximum. Une collaboration qui se poursuivra bien au-delà de la résidence.
 
-Une affiche sonore ne s'explique pas. Elle s'écoute, elle se regarde, elle se vit.
+Une affiche sonore ne s'explique pas. Elle s'écoute.
 
 **Étudiant·es Participant·es :** Béatrice, Ezra, Yasmine, Flor'ann, Marzieh, Marvrick, Sarah, Cyndcore
 
@@ -27,7 +27,7 @@ The group went on a sensory walk through the Jardin des Plantes d'Amiens to the 
 
 London-based musician and percussionist Renu Hossain, herself neurodivergent, worked from the sounds recorded during this walk to compose an ambient soundscape blending nature and city — and what one can hear when the senses are pushed to their fullest. A collaboration that will continue well beyond the residency.
 
-A sonic poster cannot be explained. It is listened to, looked at, lived.
+A sonic poster cannot be explained. It is listened to.
 
 **Students:** Béatrice, Ezra, Yasmine, Flor'ann, Marzieh, Marvrick, Sarah, Cyndcore
 
