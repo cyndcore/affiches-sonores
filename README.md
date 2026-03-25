@@ -10,7 +10,7 @@ La musicienne et percussionniste londonienne Renu Hossain, elle aussi neurodiver
 
 Une affiche sonore ne s'explique pas. Elle s'écoute.
 
-**Étudiant·es Participant·es :** Béatrice, Ezra, Yasmine, Flor'ann, Marzieh, Marvrick, Sarah, Cyndcore
+**Étudiant·es Participant·es :** Béatrice, Ezra, Yasmine, Flor'ann, Marzieh, Mavrick, Sarah, CYNDCORE
 
 **© 2026 CYNDCORE × Renu Hossain. Tous droits réservés.**
 Ce projet n'est pas open source. Les affiches, compositions sonores et contenus associés ne peuvent être reproduits, partagés ou réutilisés sans autorisation explicite des autrices.
@@ -29,7 +29,7 @@ London-based musician and percussionist Renu Hossain, herself neurodivergent, wo
 
 A sonic poster cannot be explained. It is listened to.
 
-**Students:** Béatrice, Ezra, Yasmine, Flor'ann, Marzieh, Marvrick, Sarah, Cyndcore
+**Students:** Béatrice, Ezra, Yasmine, Flor'ann, Marzieh, Mavrick, Sarah, CYNDCORE
 
 **© 2026 CYNDCORE × Renu Hossain. All rights reserved.**
 This project is not open source. The posters, sound compositions and associated content may not be reproduced, shared or reused without explicit permission from the authors.
